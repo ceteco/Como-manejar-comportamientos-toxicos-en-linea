@@ -103,7 +103,7 @@ Patrones secundarios:
 
 Los trolls suelen tener un ego (Sentido del yo) frágil. Se sienten inferiores a los demás y tratan de compensarlo obteniendo atención, poder y recursos.
 
-Es importante recordar que no podemos controlar a otras personas, pero sí podemos controlar nuestra reacción ante ellas. Todos somos diferentes psicológicamente y en nuestro desarrollo, lo cual nos lleva a comprender y no tomar estos asuntos de forma personal.
+Es importante recordar que no podemos controlar a otras personas, pero sí podemos controlar nuestra reacción ante ellas. Todos somos diferentes psicológicamente y en nuestro desarrollo, aceptarlo nos lleva a comprender y no tomar estos asuntos de forma personal.
 
 En resumen, trata a estas personas con amor, comprensión y desenfado. No las odies ni permitas que proyecten sus propios temores en tí. Simplemente déjalas seguir su camino. Piensa en ellas como fenómenos naturales destructivos, como un huracán, y sigue el protocolo para protegerte.
 
